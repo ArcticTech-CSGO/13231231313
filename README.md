@@ -1,2 +1,2 @@
-# 13231231313
+# ArcticTech for csgo
 ArcticTech for csgo - cheat
